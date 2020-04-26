@@ -1,5 +1,7 @@
 # Русалии
 
+![](https://www.wallpaperflare.com/static/824/334/498/fantasy-art-artwork-mermaids-underwater-wallpaper-preview.jpg)
+
 Русалии - народ, живущий в реках, озёрах и морях.
 
 ## Внешний вид
