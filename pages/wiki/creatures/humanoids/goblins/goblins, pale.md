@@ -1,4 +1,4 @@
-# Гоблины (белые)
+# Гоблины, бледные
 
 ![](https://www.bestiary.us/files/images/jack-malone-01-11.preview.jpg)
 
